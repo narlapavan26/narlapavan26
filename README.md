@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on AI-driven healthcare solutions and impactful ML projects
 
-📫 How to reach me: narlapavankumar6@gmail.com | LinkedIn
+📫 How to reach me: narlapavankumar6@gmail.com 
 
 😄 Pronouns: He/Him
 
